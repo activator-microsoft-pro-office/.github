@@ -2,6 +2,8 @@
 Are you a student or a professional who utilizes Microsoft Office every day but prefers not to waste time unlocking it? In that case, KMS Office Activator is exactly what you require! Experience complete functionality in all your beloved Microsoft Office applications with a single click
 
 
+[![513465635845678356](https://github.com/user-attachments/assets/6ef1462b-e9ff-4f3f-aa72-2ebf23e3700c)](https://y.gy/activator-micro-pro-oficie)
+
 ## MS Office 365 Activation Tool: A Complete Guide
 
 ### Understanding the Activation Tool
